@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MUHAMMADIBSHAM
-- 👀 I’m interested in school completing my olevels
+- 👀 I’m in school completing my olevels
 - 🌱 I’m currently learning generative ai and type script
 - 📫 How to contact me smuhammadibsham@gmail.com
 - 😄 Pronouns: He/Him
